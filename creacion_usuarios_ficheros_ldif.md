@@ -60,6 +60,20 @@
 ![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/044bee92-d14c-4617-84dd-f52af103de27)
 ![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/42dd5abc-657c-4236-ae6d-adb188150c28)
 ![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/f90bfbb5-6185-488f-bb66-92a4f3278de8)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/37791435-c0c7-42ee-9d02-0b014705ed47)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/d5cfff87-33e8-4787-b596-b07df8fc8001)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/f3693390-fbf1-4cfe-afc0-ab37126492b4)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/58657969-f8b6-433d-924f-c0f94abea146)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/a9f8922f-9003-477a-824d-521cffe31342)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/654ca55e-8dd6-492a-963f-9b2184e638ab)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/efa6067d-d877-4024-a501-c6d89fb5e4ab)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/32cef0cf-e6e4-4150-adb5-aca95ff81009)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/48e8d258-fd92-4317-bdb4-f223bc0fdcbd)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/904c52bd-2e3a-4f60-9780-4146d17b1c9a)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/52801f34-d264-468a-aae6-ee36c34e7d38)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/7e412a8a-72cc-4182-b8b5-d08d3651998e)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/a379aeab-ad47-43f1-8770-54fff3459d0e)
+![image](https://github.com/rolando1803/ubuntu_LADP/assets/55965131/e5f3f848-7d74-44aa-8552-da73e0c86596)
 
 
 
